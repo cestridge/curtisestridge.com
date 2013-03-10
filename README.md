@@ -1,0 +1,4 @@
+curtisestridge.com
+==================
+
+personal site
